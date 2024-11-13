@@ -3,7 +3,7 @@
 
 # Hello 🖐, it's mayyasa  👀
 
-👩‍💻 I'm currently in my 4 years  as a studnet @NNU/Nablus on computer Engginger
+👩‍💻 I'm currently in my 4 years  as a studnet @NNU/Nablus on computer Engineer
 
 🧠 I'm extremely interested in coding & technologies
 
